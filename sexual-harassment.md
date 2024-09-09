@@ -32,6 +32,48 @@
 
 - **Social Media Campaigns**: Launch social media campaigns to raise awareness and educate the public about sexual harassment, encouraging individuals to share their stories and support one another.
 
-### The Sexual Harassment of Women at Workplace Act
+# The Sexual Harassment of Women at Workplace Act
 
 2013 (commonly known as the POSH Act) is a significant piece of legislation in India aimed at protecting women from sexual harassment in the workplace. It provides a legal framework for preventing, prohibiting, and redressing complaints of sexual harassment, fostering a safer and more inclusive work environment for women.
+
+# Explains different scenarios enacted by actors.
+
+- **Dramatic Presentations**:
+
+  Performers depict highly charged emotional scenarios, frequently delving into intricate subjects such as love, treachery, or sorrow.
+  Comedy: Actors portray humorous situations, frequently involving misunderstandings or ludicrous events, by using humor and timing.
+  Musical theater: Performers narrate stories via songs and dances, frequently fusing humor and drama with musical elements.
+
+- **Action**:
+
+  Playing heroes or villains, actors perform exciting scenes that frequently include physical stunts or confrontations.
+  Romantic: Performers portray love stories, illustrating relationships at different phases, from first infatuation to problems and answers.
+  Thriller: Performers create tension by putting their characters in perilous circumstances, frequently involving criminal activity, mystery, or mental strain.
+
+# How to handle cases of harassment?
+
+**Remain composed**
+
+- Try not to lose your cool if you are harassed or witness harassment. While emotional reactions are normal, maintaining your composure will help you deal with the situation more skillfully.
+
+**Take Note of Everything**
+
+- Maintain thorough records of all the events, including the dates, times, and places of the incidents, as well as the words and deeds of any witnesses. Should you choose to report the harassment, this documentation may be very important.
+
+**Raise Your Voice**
+
+- If you feel comfortable doing so, go straight up to the harasser. Inform them that their actions are inappropriate. To communicate how their behaviors effect you, use "I" sentences (e.g., "I feel uncomfortable when you say that").
+
+# How to behave appropriately?
+
+**Remain composed**
+
+- Try not to lose your cool if you are harassed or witness harassment. While emotional reactions are normal, maintaining your composure will help you deal with the situation more skillfully.
+
+**Take Note of Everything**
+
+- Maintain thorough records of all the events, including the dates, times, and places of the incidents, as well as the words and deeds of any witnesses. Should you choose to report the harassment, this documentation may be very important.
+
+**Take Note of Everything**
+
+- If you feel comfortable doing so, go straight up to the harasser. Inform them that their actions are inappropriate. To communicate how their behaviors effect you, use "I" sentences (e.g., "I feel uncomfortable when you say that").
